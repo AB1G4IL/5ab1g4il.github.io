@@ -1,1 +1,0 @@
-# how-to-have-a-successful-preppy-account-
